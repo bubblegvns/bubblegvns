@@ -4,7 +4,7 @@ wip
   <img src="https://i.ibb.co/ycyW8DT6/faced.png"/>
 </p>
 
-<p align=center> jinx 　⸝ 　ethel　or　doe ⠀ 　✦ <p align=center>
+<p align=center> jinx 　⸝ 　ethel　or　doe ⠀ 　✦ 　! <p align=center>
 <p align=center> 　;　18yoㅤ　♫　  ⠀nonhuman,⠀mixed. <p align=center>
 <p align=center> free c+h　&&.　int <p align=center>
 
